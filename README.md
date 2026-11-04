@@ -1,0 +1,1 @@
+# mostra_tecnologia_2026
